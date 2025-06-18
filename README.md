@@ -1,1 +1,0 @@
-# ia-dia-a-dia
